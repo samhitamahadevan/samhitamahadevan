@@ -14,7 +14,7 @@
 ## Connect With Me
 - 📧 Email: mahades@purdue.edu <br>
 - 🔗 LinkedIn: [linkedin.com/in/samhita-mahadevan](https://linkedin.com/in/samhita-mahadevan) <br>
-- 🌐 [Website](https://samhitamahadevan.vercel.app/)] <br>
+- 🌐 [Website](https://samhitamahadevan.vercel.app/) <br>
 
 ## Fun Fact
 ⚡ I'm an avid trivia and pokemon enthusiast!! 
